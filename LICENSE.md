@@ -1,4 +1,4 @@
-# 
+# Enhance Foxit PDF Editor for PC | Foxit PDF Editor for Windows with updated Plugin for Foxit PDF Editor for PC | Foxit PDF Editor for Windows - image-editing and batch-processing,
 
 
 
